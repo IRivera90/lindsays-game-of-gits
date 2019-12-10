@@ -5,3 +5,5 @@ Regent.  He is surely honorable and will lead a long and prosperous life.
 
 Ned Stark went to Kings Landing and lived happily ever
 after. Everybody was friendly.
+
+Until he fell on an axe and died.
