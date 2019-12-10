@@ -3,4 +3,5 @@ Winterfell, Warden of the North, Hand of the King, Protector of the Realm,
 Regent.  He is surely honorable and will lead a long and prosperous life.
 
 
-Ned went to Kings Landing and was murdered. 
+Ned Stark went to Kings Landing and lived happily ever
+after. Everybody was friendly.
